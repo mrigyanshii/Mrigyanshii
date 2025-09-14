@@ -39,7 +39,7 @@
 
 ### 𝙁𝙞𝙣𝙙 𝙈𝙚 
 📜 **Portfolio:** *Summoning soon...*  
-📧 **Contact:** *Try a ritual first, but email works too.*  
+📧 **Contact:** *deadace003@gmail.com.*  
 
 ---
 
