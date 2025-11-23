@@ -31,7 +31,7 @@
 ---
 
 ### 𝙒𝙝𝙖𝙩 𝙄’𝙢 𝙐𝙥 𝙏𝙤  
-🔹 **Catching uptoLatest technology.**
+🔹 **Catching upto the latest tech.**
 🔹 **Learning and deploying machine learning.**
 🔹 **Game dev.** 
 🔹 **Feeding onto books.**  
