@@ -31,15 +31,16 @@
 ---
 
 ### 𝙒𝙝𝙖𝙩 𝙄’𝙢 𝙐𝙥 𝙏𝙤  
-🔹 **Coding incantations**
+🔹 **Catching uptoLatest technology.**
 🔹 **Learning and deploying machine learning.**
-🔹 **Catching upto books.**  
+🔹 **Game dev.** 
+🔹 **Feeding onto books.**  
 
 ---
 
 ### 𝙁𝙞𝙣𝙙 𝙈𝙚 
-📜 **Portfolio:** *Summoning soon...*  
-📧 **Contact:** *deadace003@gmail.com.*  
+📜 **Portfolio:** **  
+📧 **Contact:** *mriigyanshii@gmail.com.*  
 
 ---
 
